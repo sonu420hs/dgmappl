@@ -1,0 +1,2 @@
+# dgmappl
+MINING WEBSITE UTTARKHAND 
